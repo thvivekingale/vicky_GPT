@@ -1,4 +1,4 @@
-hwiw8w8yevb b  wjwi7e7egevis# vicky_GPT
+thwi28e kw woos8she  wowihwiw8w8yevb b  wjwi7e7egevis# vicky_GPT
 A simple personal chatbot using Gemini API. Built for experimenting with conversational AI and future project foundations.
 deetthhgfe34tgg   vrr   frt c   
 
